@@ -1,2 +1,1 @@
-# rivalsroblox
-Discord Server for all Rivals players
+https://discord.com/invite/rivalsroblox
